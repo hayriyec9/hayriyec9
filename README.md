@@ -3,6 +3,6 @@
 - 🌱 I’m currently learnining JAVA,PYTHON
 - 💞️ I’m looking to collaborate on freelancer
 - 📫 How to reach me: eposta: hayriyecekin@icloud.com
-- my instagram account:hayriyecknn
+- my instagram account:hayriyeckn0
 
 
